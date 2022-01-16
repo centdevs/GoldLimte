@@ -8,14 +8,14 @@
 *** Released on a sunday 16th Jan 2021 
 *** Make this count dude 
 *** ### learn something new this year 
-*** Happy 2022 , This is your 2022 present from me
+*** Happy 2022
 *** 
 ***
 *** If you need to edit the banner, You can but leave - 
 ***    alone these credits. 
 ***
 *** My youtube channel : https://www.youtube.com/channel/UCoIH4EUB2V-E2uzouD3ZG2g 
-***    -> subscribe and make me happy dude. 
+***    -> subscribe...
 ***
 *** Love you alot
 **/
